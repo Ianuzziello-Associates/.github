@@ -1,6 +1,6 @@
 # Ianuzziello & Associates Inc.
 
-![Ianuzziello & Associates Logo](https://github.com/user-attachments/assets/c897fbe8-3edc-4d7c-907d-10acfa884991)
+![Ianuzziello & Associates Logo](https://github.com/user-attachments/assets/34526e8a-6359-4c83-92d2-15bdf5e63ebc)
 
 ## Mechanical & Electrical Consulting Engineering Firm  
 **Toronto-based | Nationally Licensed | 25+ Years of Experience**  
